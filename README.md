@@ -10,7 +10,7 @@ $${\color{#E8D8B8}\textsf{𓎢𓎟𓎡　𓈒　she　⋮　they　　𓏵　　
 </div>
 
 
-<a href="https://raisdreamss.straw.page">straw</a>
+<a href="https://raisdreams.straw.page">straw</a>
 <a href="https://raisdreams.atabook.org/">ata</a>
 <a href="https://pronouns.cc/@raisdreams">pronouns</a>
 
