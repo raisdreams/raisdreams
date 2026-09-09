@@ -1,10 +1,11 @@
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/5204cdb3-2947-4edc-8620-80c5af5fddd7" /> 
-
+<img width="5657" height="883" alt="image" src="https://github.com/user-attachments/assets/a741f834-1023-4d34-96fb-2b146bc3ab17" /><p align="center">
+  <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3db80b42-19ea-4221-9ef3-8819fa1c033d" />
+</p>
 <div align="center">
 
 <div align="center">
 
-$${\color{#E8D8B8}\textsf{𓎢𓎟𓎡　𓈒　she　⋮　they　　𓏵　　check straw and sign ata　　ᰔ}}$$
+$${\color{#ECF4F6}\textsf{𓎢𓎟𓎡　𓈒　she　⋮　they　　𓏵　　check straw and sign ata　　ᰔ}}$$
 
 
 </div>
