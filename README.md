@@ -15,5 +15,4 @@ $${\color{#ECF4F6}\textsf{𓎢𓎟𓎡　𓈒　she　⋮　they　　𓏵　　
 <a href="https://raisdreams.atabook.org/">ata</a>
 <a href="https://pronouns.cc/@raisdreams">pronouns</a>
 
-
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Futura&pause=1000&color=3F91F7&background=FFFFFF00&width=435&lines=%22What+a+pleasant+surprise%2C;+truly+an+extra+slice+of+joy.%22)](https://git.io/typing-svg)
